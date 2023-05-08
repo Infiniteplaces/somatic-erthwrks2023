@@ -1,1 +1,1 @@
-# selfaware.studio
+# Somatic Earthworks website 2023
